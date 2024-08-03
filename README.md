@@ -18,3 +18,12 @@ mains - pas de vie - log de x
 pas de vie - log de x - infini log de x - 1
 
 le 1 et le 2 sont incoherents. je devrais arrive pour linstant a lutilisation de cellules souches mais je vaisblarreter labpour linstant. effectivement bie' quebje ne szxhe que detruire, les gens ont detruit aussi. mais je garde espoir en mon dieu ou a l atheisme 
+on va continuer. le 1 et le 2 sont incoherent et on prendre la premiere nouvelle connaissance que jai en medecine. donc ce sera : 1 mois.
+on a donc :
+pas de vir - log de x - infini log de x - 1 - 2 - 1 mois.
+
+pzd de vir - log de x - infini log de x - 1 - 2 mois.
+
+vie - non mathematique - 2 mois -1
+
+je viens de trouver une expression mathematique et 2 mois. attention, je ne suis pas medecin. donc a vous de trouver une expression mathematique qui est sans vie ! vous pouvez prendre un modele recent, cest la meilleur chose a faire.
